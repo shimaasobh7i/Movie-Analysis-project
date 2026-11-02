@@ -3,4 +3,4 @@
 - **شيماء صبحي** (Shimaa Sobh7i)
 - **حازم أشرف** (Hazem Ashraf)
 - **بسمة مجاهد جاد** (Basma Megahid Gad)
-- **آية عبدالناصر عبدالباري** (Aya Abdelnaser Abdelbary)* (Aya)
+- **آية عبدالناصر عبدالباري** (Aya Abdelnaser Abdelbary)
